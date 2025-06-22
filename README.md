@@ -1,2 +1,0 @@
-# Raa
-bebas
